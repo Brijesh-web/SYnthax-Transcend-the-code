@@ -1,4 +1,4 @@
-# Ynthax-Transcend-the-code
+# Synthax-Transcend-the-code
 
 -----
 
